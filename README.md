@@ -6,3 +6,4 @@
 
 ## め
 discord: anago#9866
+gmail: auagoYo@gmail.com
